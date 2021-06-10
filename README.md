@@ -1,6 +1,5 @@
 ## Hi there 👋
 
-I am a Developer/Designer from India.
 "About Me” is the most cliched tab of all the websites of this world. Yet, here I am to pump up my self-esteem and to appear at least like a human. So, stalk me with all your curiosity; you have my chuckled permission!
 What's all this hullabaloo for "About Me"?Let me spill the beans:
 
